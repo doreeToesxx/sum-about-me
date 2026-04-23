@@ -19,7 +19,7 @@
 
 : ̗̀➛ thứ 6 : Tui cũng online khá thường xuyên tầm từ giữa trưa 12 giờ ~ 2 giờ. chiều từ 5 giờ ~ 6 giờ. Tối từ 7 giờ ~ 8 giờ (っ˕ -｡)ᶻ 𝗓 𐰁
 
-: ̗̀➛ thứ 7 : ➤ lưu í ọ: Tui cũng có black list ở trong Pony ạ : Những ai có tiếp xúc với bạn Daki Duckie , Sylvan Flores thì đừng int mình ạ. kị lắm (,,>﹏<,,)
+: ̗̀➛ thứ 7 : ➤ lưu í ọ: Tui cũng có black list ở trong Pony ạ ( thân sẽ kể)
 
 : ̗̀➛ thứ 8 : Hiện tại fandom mà tui quan tâm đến đó là những fandom : DRV (Danganronpa. chủ yếu V3), AOV (Arena Of Valor), YTTD (Your Turn To Die) và SKG (SKullgirls), BlackSouls,. (˶˃ᆺ˂˶)
 
