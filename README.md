@@ -1,6 +1,6 @@
 # something about me > . <
 <p align="center">
-  <img src="https://i.pinimg.com/originals/ea/40/57/ea40573f36cd559b03a2f99c11dff1e0.gif" width="600"/>
+  <img src="https://i.pinimg.com/originals/8e/45/70/8e4570eb2996bd49c452b40fa133e850.gif" width="600"/>
 </p>
 <p align="center">
   <a href="https://www.facebook.com/HijwKya/">facebook</a>
